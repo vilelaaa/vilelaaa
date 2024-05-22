@@ -1,6 +1,6 @@
-### oioiii gente 👋
+### Oioiii gente 👋
 
-🤍Meu nome é Vilela 
+🤍Meu nome é Aysha Vilela
 
 📚Meus pronomes são: Ela/Dela
 
@@ -8,5 +8,5 @@
 
 💭Estou apredendo JavaScript, e vou organizar e compartilhar meus projetos aqui
 
-💤### Caso queira entrar em contato comigo: 
+### 💤Caso queira entrar em contato comigo: 
 00001109678551SP@al.educacao.sp.gov.br
