@@ -11,4 +11,3 @@
 ### 💤Caso queira entrar em contato comigo: 
 00001109678551SP@al.educacao.sp.gov.br
 
-https://images.app.goo.gl/xZBPAnA2jgokGFQo8
